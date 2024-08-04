@@ -1,0 +1,1 @@
+CityCamp is a platform dedicated to discovering and sharing reviews about cities and small locations across India. Whether you're looking for a serene spot in the mountains or a cozy village near a quaint town, CityCamp offers detailed reviews and insights from fellow travellers.
